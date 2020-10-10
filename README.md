@@ -1,0 +1,2 @@
+# osmanli gezinti
+ 
